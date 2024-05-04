@@ -1,4 +1,4 @@
- 👋 Hi, I’m @tina3860
+ 👋 Hi, I’m @tina3860, Valentina! 
  
  👀 I’m interested in data analysis as well as UI
  
